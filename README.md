@@ -1,2 +1,1 @@
-# jameel-naguman-oficial-portfolio
-/portfolio
+# jameellnaguman-p
